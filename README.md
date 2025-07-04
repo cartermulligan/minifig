@@ -1,0 +1,2 @@
+https://www.youtube.com/watch?v=0F4nBoS4b58&list=PLLm7Yjr9z_z07ohtjFGkA5w-j_NMj8B3J&index=18 <-- Learn It! youtube channel that offered the tutorial I followed to create this minifigure. Not really taking credit for the project design,
+moreso just showing off that I have successfully learned the skills needed to create the components and assemble them together in a manner as shown by the learn It! channel tutorial.
